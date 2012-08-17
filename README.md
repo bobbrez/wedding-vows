@@ -23,7 +23,8 @@ My second suggestion is this: Make each other the recipient of daily kindness.
 Last, but perhaps most importantly, make truth the unfailing bedrock of your lives together. A happy, loving marriage is built on trust and respect. That trust and respect can only be sustained if you are both deeply committed to always being open and truthful in every exchange no matter how small.
 My hope for you is this; that you have many long years to delight in each others company, to feel gratitude for your great good fortune in having found and loved each other, to a make home together that is at once sheltering and welcoming, to each do meaningful, productive work at home and in the world
 to travel with each other and explore the unknown and to love and be loved by the friends and family who have come here today to support you…
-V. GROUP DECLARATION OF SUPPORT Now, I ask that these friends and family stand, And that you turn and acknowledge them, as they acknowledge you
+
+##V. GROUP DECLARATION OF SUPPORT Now, I ask that these friends and family stand, And that you turn and acknowledge them, as they acknowledge you
 [Audience stands]
 As family and friends, You form a community of support That surrounds Bob and Galia Each of you, by your presence here today Is being called upon To uphold them in loving each other
 Always stand beside them, never between them Offer them your love and your support Not your judgment Encourage them when encouragement is needed And listen to them when they ask for advice
