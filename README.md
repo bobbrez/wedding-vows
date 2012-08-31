@@ -48,6 +48,17 @@ To honor those loved ones who are not with us today
 
 ## IV. MARRIAGE ADDRESS
 
+### Union by Robert Fulghum
+You have known each other from the first glance of acquaintance to this point of commitment. At some point, you decided to marry. From that moment of yes, to this moment of yes, indeed, you have been making commitments in an informal way. All of those conversations that were held in a car, or over a meal, or during long walks – all those conversations that began with, “When we’re married”, and continued with “I will” and “you will” and “we will” – all those late night talks that included “someday” and “somehow” and “maybe” – and all those promises that are unspoken matters of the heart. All these common things, and more, are the real process of a wedding.
+
+The symbolic vows that you are about to make are a way of saying to one another, “You know all those things that we’ve promised, and hoped, and dreamed – well, I meant it all, every word.”
+
+Look at one another and remember this moment in time. Before this moment you have been many things to one another – acquaintance, friend, companion, lover, dancing partner, even teacher, for you have learned much from one another these past few years. Shortly you shall say a few words that will take you across a threshold of life, and things between you will never quite be the same.
+
+For after today you shall say to the world –
+This is my husband. This is my wife.
+
+
 ```The section below should be reworded / replaced with whatver GPollice wants to add about marrage.```
 
 Deep abiding affection,
