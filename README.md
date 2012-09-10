@@ -25,14 +25,13 @@ We gather here to witness, not the beginning of a journey, but a continuation of
 journey that began seven years ago. Today they invite you  to walk along with them
 on part of that journey. We celebrate not what will be, but what already is!
 
-```+^ "We are gathered here, not to witness the beginning of what will be, but rather what already is! "]```
-
 ## II. ACKNOWLEDGMENT OF FAMILY & FRIENDS
 
 Today represents not only the joining of Bob and Galia,
 but also the joining of their families and friends.
 Bob and Galia would like to recognize their parents on this occasion.
-(--Should the parents / grandparents be invited to stand?--)
+(-- GP: Should the parents / grandparents be invited to stand? --)
+(-- BB: Since they'll be walking in as apart of the ceremony it will be fine. They'll be asked to stand again during introductions at the reception. --)
 They offer their profound gratitude
 for all the love and care you, their parents, showed in raising them.
 Parents, the unconditional gifts of love and support
@@ -55,7 +54,9 @@ To honor those loved ones who are not with us today
 
 ## IV. MARRIAGE ADDRESS
 
-(-- Do you want me to read this or should it be read by one of the wedding party?? --)
+(-- GP: Do you want me to read this or should it be read by one of the wedding party?? --)
+(-- BB: I think that having someone read it would be nice. We can determine that @ the rehersal. --)
+
 ### Union by Robert Fulghum
 You have known each other from the first glance of acquaintance to this point of commitment. At some point, you decided to marry. From that moment of yes, to this moment of yes, indeed, you have been making commitments in an informal way. All of those conversations that were held in a car, or over a meal, or during long walks – all those conversations that began with, “When we’re married”, and continued with “I will” and “you will” and “we will” – all those late night talks that included “someday” and “somehow” and “maybe” – and all those promises that are unspoken matters of the heart. All these common things, and more, are the real process of a wedding.
 
@@ -66,46 +67,10 @@ Look at one another and remember this moment in time. Before this moment you hav
 For after today you shall say to the world –
 This is my husband. This is my wife.
 
-
 ```The section below should be reworded / replaced with whatver GPollice wants to add about marrage.```
-(-- Now, do you want me to write in my comments or do you want to have some surprise? --)
-Deep abiding affection,
-the ```- magical``` and compelling shared impulse that makes us seek each others company,
-is among the greatest gifts of the human experience.
-Any of us who has been fortunate enough to find and express
-the kind of loving devotion that we are celebrating here today
-knows that it is an awesome and beautiful thing.
 
-This understanding brings me to the first of three ```~ suggestions```
-I will offer to you, Bob & Galia; be constantly grateful for the presence of this precious person
-who has chosen to make a life with you.
-
-My second suggestion is this:
-Make each other the recipient of daily kindness.
-The world can be a tough place and any of us can be subject to rough handling.
-Be generous with compliments.
-Be attentive and helpful.
-Each of you can, by your tenderness toward each other,
-kind words and thoughtful actions,
-make your marriage and your home an uplifting refuge.
-
-Last, but perhaps most importantly,
-make truth the unfailing bedrock of your lives together.
-A happy, loving marriage is built on trust and respect.
-That trust and respect can only be sustained
-if you are both deeply committed to always being open and truthful
-in every exchange no matter how small.
-
-My hope for you is this;
-that you have many long years to delight in each others company,
-to feel gratitude for your great good fortune
-in having found and loved each other,
-to a make home together that is at once sheltering and welcoming,
-to each do meaningful, productive work at home and in the world
-to travel with each other and explore the unknown
-and to love and be loved by the friends and family
-who have come here today to support you…
-(-- End of my comments and transition to the next section. --)
+(-- GP: Now, do you want me to write in my comments or do you want to have some surprise? --)
+(-- BB: Ideally it would be great as a surprise, but practically I'd like to see what you've got written. I've got a feeling that we'll both be nervous so trying to absorb and comprehend may be a bit difficult. Plus, familuarity will help cut down on the nervousness. --)
 
 ##V. GROUP DECLARATION OF SUPPORT
 
@@ -118,7 +83,7 @@ As family and friends,
 you form a community of support
 that surrounds Bob and Galia
 each of you, by your presence here today
-is called upon tTo uphold them in loving each other.
+is called upon to uphold them in loving each other.
 
 Always stand beside them, never between them.
 Offer them your love and your support,
@@ -157,7 +122,9 @@ Let these rings be a sign that love has a past, a present, and a future
 through you and within you.
 
 ```~ Like each other, each ring has been made unique by each other's presence.```
-(-- Comment about the uniqueness of the rings, the fingerprints? --)
+
+(-- GP: Comment about the uniqueness of the rings, the fingerprints? --)
+(-- BB: Yep. Not really sure exactly what to say though... --)
 
 Now Bob, please take Galia’s hands, palms up, so you may see the gift that they are to you:
 These are the hands of your best friend, smooth, young, and carefree,
@@ -175,6 +142,13 @@ I give you this ring as a sign that I choose you to be my lover, my partner an
 to the end of my days. Wear it, think of me, and know that I love you
 
 ## IX. BEER CEREMONY
+In this wine ceremony, a single glass of beer is placed on a table, from which both the Bride and Groom will both drink after the reading.
+
+In this glass are the fruits of Creation, Mankind and Mother Earth. The years of our lives are like a cup of beer that is poured out for the sake of labor, honor and love. Many days you will sit at the same table and eat and drink together. Many are the experiences you will share.
+
+As with a glass of beer, one of you may find it sweet, the other perhaps bitter or somehow different. Let the drink you share today serve as a reminder that although you may perceive things very differently, being right is never more important than being happy. With this space that you give each other, always putting your commitment to love and honor one another first, your lives together will grow deeper, richer and greatly satisfying, like a hearty beer. You may now drink from this fountain of love. 
+
+`` Couple gives each other a drink from the same glass ``
 
 ## VII. PRONOUNCEMENT
 Bob and Galia, we have heard your promise to share your lives in marriage.
