@@ -69,8 +69,55 @@ This is my husband. This is my wife.
 
 ```The section below should be reworded / replaced with whatver GPollice wants to add about marrage.```
 
-(-- GP: Now, do you want me to write in my comments or do you want to have some surprise? --)
-(-- BB: Ideally it would be great as a surprise, but practically I'd like to see what you've got written. I've got a feeling that we'll both be nervous so trying to absorb and comprehend may be a bit difficult. Plus, familuarity will help cut down on the nervousness. --)
+Galia and Bob. By now I'm sure that you've received words of wisdom about the wonders, joys, difficulties, 
+ups, downs, rewards, sacrifices, and every other possible topic, that can remotely be applied to marriage. 
+Some of these may be helpful and some not so helpful. You could probably take the advice and write the complete 
+marriage owner's manual. And it would be as good as any other book on successful marriage. Because all of the 
+advice people offer, good and bad, are absolutely true — for the people who offered them to you.
+
+But they are not you. You, the Galia and Bob standing here today, are unique. You came in here as two people, 
+a couple, ready to commit to a deeper, more intimate union. When you exit from this ceremony you will be 
+different than when you came in. You will still be Galia and Bob, unique, wonderful individuals, but you 
+will be Galia and Bob, the unique product of this union — and that is the wonder of marriage.
+
+It is an "Oh wow!" wonder. As I thought about this and what advice I might offer you today, my thoughts 
+were drawn the last words of Steve Jobs, the late founder of Apple Computer. According to reports his last 
+words were "Oh wow! Oh wow! Oh wow!" Many people have been wondering what this really meant. Did Jobs have 
+a mystical experience at the end of this life? Did he see his life pass by and realize all of the joys he 
+experienced — or perhaps all of the sorrows and things he missed. We'll never know for sure. But this made 
+me think about the "Oh wow!" moments that I've experienced in my marriage. Some are the obvious ones: 
+these include the day I married the love of my life, the day our son was born, the joy of welcoming 
+grandchildren, and so on. You can't help but be aware of these moments, but there are so many more, and they 
+are so easy to miss.
+
+How can you avoid missing them? I offer to you the following suggestions and wishes.
+
+For each of us, life is a journey. You two have chosen to walk together on the journey. There will 
+be times when each of you will take side trips to explore things that interest you; but you will never be 
+too far from the main path that both of you walk. This is good and normal. When we venture on any trip, we 
+make plans and look ahead, focusing on the destination--the ultimate goal. When we do this however, too often 
+we miss what is, because we continue to look for what will be.
+
+My hope for you is that you enjoy the trip – the wondrous adventures — rather than just focusing on the 
+destination, because the destination will change. Where you think you are headed today may be far away 
+from where you will be. But the true joy of any trip is the trip itself. And experiencing the trip together 
+is the real wonder.
+
+Be aware of, and be present to each other. How can you tell when two people are in love? Early in a relationship 
+one sees actions that normally occur during an initial infatuation phase. The unwillingness to be  part. 
+The need for constant contact with each other. We've all been there, and for most of us we have gone past that. 
+Think of parents, grandparents, and others who have seemingly been in love forever. Each of these loves is 
+unique and undeniable. There are certainly childish, playful moments. Moments of great passion. But the basis 
+of their love is their ability to cherish those common, ordinary moments, of each day and to be thankful for 
+the love they have at each and every one of those moments. This is the bedrock foundation of true love upon 
+which deep, meaningful lives are built. This is the love I wish for you.
+
+So, finally, I wish for you the gift of reflection; the ability to reflect at the end of each day and think 
+of those times of the ordinary, the common, and the often unexciting. And when you reflect upon these things 
+that you are able to see each other — a glance, a touch, or quiet moment when you were in each other's 
+presence — and recognize the love between you.
+
+And when you do reflect and see the common, ordinary, and comfort that you can say "Oh wow! Oh wow! Oh wow!"
 
 ##V. GROUP DECLARATION OF SUPPORT
 
