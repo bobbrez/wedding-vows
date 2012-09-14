@@ -167,7 +167,7 @@ I cherish your personality. While I do not know what the future holds for us, I 
 
 Together we have gone from dorms to apartments; From Vegas to Venice; and from beaches to emergency rooms. During this time, I've seen who you are.
 
-Your curiosity and drive to explore the unknown has enriched our lives. I vow that I will be at your side as we push ourselves to travel and explore. I vow that I will keep us fresh by seeking new experiences. And I vow that I will be equally diligent about keeping our passion alive.
+Your curiosity and drive to explore the unknown has enriched our lives. I vow that I will be at your side as we push ourselves to travel and explore. I vow that I will keep us fresh by seeking new experiences. And I vow that I will be equally diligent about keeping our passions alive.
 
 Your compassion for others is unlike any other. There are innumerable examples of where you befriended those who others would not. You even managed to put up with me. I vow that I will mirror the love that you show me everyday. I vow that I will always listen and be a confidant for you. And I vow that will support your efforts to make meaningful change.
 
