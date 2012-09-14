@@ -163,17 +163,17 @@ Then please turn to each other and share the vows you have written.
 ### Bob’s Vows
 Galia,
 
-I love you and I cherish your personality. While I do not know what the future holds for us, I know that I can promise I will be your companion.
+I cherish your personality. While I do not know what the future holds for us, I know that I can promise I will be your companion.
 
-Together we have gone from dorms to apartments; From Vegas to Vennice; and from <XX> to <YY>. During this time, I've seen who you are.
+Together we have gone from dorms to apartments; From Vegas to Venice; and from beaches to emergency rooms. During this time, I've seen who you are.
 
-Your curiousity and drive to explore the unknown has enriched our lives. I vow that I will be at your side as we push ourselves to travel and explore. I vow that I will keep us fresh by seeking new expierences. And I vow that I will be equally viligent about keeping our passion alive.
+Your curiosity and drive to explore the unknown has enriched our lives. I vow that I will be at your side as we push ourselves to travel and explore. I vow that I will keep us fresh by seeking new experiences. And I vow that I will be equally diligent about keeping our passion alive.
 
-Your compassion for others is unlike any other. There are inumeral examples of where you befriended those who others would not. You even managed to put up with me. I vow that I will mirror the love that you show me everyday. I vow that I will always listen and be a confidant for you. And I vow that will support your efforts to make meaningful change.
+Your compassion for others is unlike any other. There are innumerable examples of where you befriended those who others would not. You even managed to put up with me. I vow that I will mirror the love that you show me everyday. I vow that I will always listen and be a confidant for you. And I vow that will support your efforts to make meaningful change.
 
-Your candor challenges and matures my thoughts. In our short time together, I have laid out a new half-baked idea; probably daily. I love that you are both my toughest critic and biggest advocate. I am better for it. I vow that I will always listen, but likewise will always be honest. Tactful, but honest. I vow that, at times, I will disagree and will challenge you. I vow that I wil also let you be unreasonable when you need to be.
+Your candor challenges and matures my thoughts. In our short time together, I have laid out a new half-baked idea. Probably daily. I love that you are both my toughest critic and biggest advocate. I am better for it. I vow that I will always listen, but likewise will always be honest. Tactful, but honest. I vow that, at times, I will disagree and will challenge you. I vow that I will also let you be unreasonable when you need to be.
 
-Your contageous demeter. Anyone who has ever come in contact with you can attest to feeling a little bit cheerful afterwards. While you are realistic, you can find the only ray of sunshine on an otherwise bleak day. I vow to reflect your demeter when you need it and to amplify it whenever I can. I vow that I will take time to find joy in our little moments as well as milestones. And I vow that I will do all that I can to build a hopeful future with you.
+Your contagious demeanor. Anyone who has ever come in contact with you can attest to feeling a little bit cheerful afterwards. While you are realistic, you can find the only ray of sunshine on an otherwise bleak day. I vow to reflect your demeanor when you need it and to amplify it whenever I can. I vow that I will take time to find joy in our little moments as well as milestones. And I vow that I will do all that I can to build a hopeful future with you.
 
 Galia. Thank you for everything that you've been to me so far and everything that we will be in the future. Geronimo.
 
@@ -209,8 +209,6 @@ I give you this ring as a sign that I choose you to be my lover, my partner an
 to the end of my days. Wear it, think of me, and know that I love you
 
 ## IX. BEER CEREMONY
-In this wine ceremony, a single glass of beer is placed on a table, from which both the Bride and Groom will both drink after the reading.
-
 In this glass are the fruits of Creation, Mankind and Mother Earth. The years of our lives are like a cup of beer that is poured out for the sake of labor, honor and love. Many days you will sit at the same table and eat and drink together. Many are the experiences you will share.
 
 As with a glass of beer, one of you may find it sweet, the other perhaps bitter or somehow different. Let the drink you share today serve as a reminder that although you may perceive things very differently, being right is never more important than being happy. With this space that you give each other, always putting your commitment to love and honor one another first, your lives together will grow deeper, richer and greatly satisfying, like a hearty beer. You may now drink from this fountain of love. 
