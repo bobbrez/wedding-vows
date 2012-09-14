@@ -165,7 +165,7 @@ Galia,
 
 I cherish your personality. While I do not know what the future holds for us, I know that I can promise I will be your companion.
 
-Together we have gone from dorms to apartments; From Vegas to Venice; and from beaches to emergency rooms. During this time, I've seen who you are.
+Together we have gone from dorms to apartments; From Vegas to Venice; and from beaches to emergency rooms. During this time, I've come to fully see who you are.
 
 Your curiosity and drive to explore the unknown has enriched our lives. I vow that I will be at your side as we push ourselves to travel and explore. I vow that I will keep us fresh by seeking new experiences. And I vow that I will be equally diligent about keeping our passions alive.
 
@@ -173,7 +173,7 @@ Your compassion for others is unlike any other. There are innumerable examples o
 
 Your candor challenges and matures my thoughts. In our short time together, I have laid out a new half-baked idea. Probably daily. I love that you are both my toughest critic and biggest advocate. I am better for it. I vow that I will always listen, but likewise will always be honest. Tactful, but honest. I vow that, at times, I will disagree and will challenge you. I vow that I will also let you be unreasonable when you need to be.
 
-Your contagious demeanor. Anyone who has ever come in contact with you can attest to feeling a little bit cheerful afterwards. While you are realistic, you can find the only ray of sunshine on an otherwise bleak day. I vow to reflect your demeanor when you need it and to amplify it whenever I can. I vow that I will take time to find joy in our little moments as well as milestones. And I vow that I will do all that I can to build a hopeful future with you.
+Your contagious demeanor. Anyone who has ever come in contact with you can attest to feeling at least a little bit more cheerful afterwards. While you are realistic, you can find the only ray of sunshine on an otherwise bleak day. I vow to reflect your demeanor when you need it and to amplify it whenever I can. I vow that I will take time to find joy in our little moments as well as milestones. And I vow that I will do all that I can to build a hopeful future with you.
 
 Galia. Thank you for everything that you've been to me so far and everything that we will be in the future. Geronimo.
 
