@@ -175,7 +175,7 @@ Your candor challenges and matures my thoughts. In our short time together, I ha
 
 Your contageous demeter. Anyone who has ever come in contact with you can attest to feeling a little bit cheerful afterwards. While you are realistic, you can find the only ray of sunshine on an otherwise bleak day. I vow to reflect your demeter when you need it and to amplify it whenever I can. I vow that I will take time to find joy in our little moments as well as milestones. And I vow that I will do all that I can to build a hopeful future with you.
 
-Galia. Thank you for everything that you've been to me so far and everything that we will be in the future.
+Galia. Thank you for everything that you've been to me so far and everything that we will be in the future. Geronimo.
 
 Oh. And one more thing.
 
