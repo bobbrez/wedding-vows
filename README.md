@@ -158,7 +158,34 @@ Thank you, you may be seated.
 
 Then please turn to each other and share the vows you have written.
 
-    [Galia's Vows
+### Galia's Vows
+Bob
+I have know you approximately 27.5% of my life.
+and in that time we have grown from awkward teenagers 
+to slightly less awkward adults 
+as we've begun to build our wonderful lives together.
+
+You are the most amazing person I know, 
+I love that you are dynamic, always looking to better yourself by seeking out new experiences, knowledge and skills.
+
+I love so many things about you; it will take a lifetime to say them all 
+but there is one that is important to say here, today.
+The infinite love and affection that you share with your family and friends is astounding. 
+In turn the love and affection your family has shown me 
+makes me feel so privileged.  
+I am honored to become a part of your family.
+
+I promise to love you, 
+to encourage and inspire you
+to strive to never stagnate and always grow.
+to laugh with you, and to comfort you in times of sorrow and struggle. 
+I promise to love you in good times and in bad,
+I promise to accept you being irrational when thats what you need
+I promise to honor you, and to always hold our love for each other in highest regard
+These things I pledge to you today, and always
+as we slowly approaching 100% of our lives together.
+
+I Love You.
 
 ### Bob’s Vows
 Galia,
@@ -171,15 +198,11 @@ Your curiosity and drive to explore the unknown has enriched our lives. I vow th
 
 Your compassion for others is unlike any other. There are innumerable examples of where you befriended those who others would not. You even managed to put up with me. I vow that I will mirror the love that you show me everyday. I vow that I will always listen and be a confidant for you. And I vow that will support your efforts to make meaningful change.
 
-Your candor challenges and matures my thoughts. In our short time together, I have laid out a new half-baked idea. Probably daily. I love that you are both my toughest critic and biggest advocate. I am better for it. I vow that I will always listen, but likewise will always be honest. Tactful, but honest. I vow that, at times, I will disagree and will challenge you. I vow that I will also let you be unreasonable when you need to be.
+Your candor challenges and matures my thoughts. In our short time together, I have laid out a new half-baked idea; probably daily. I love that you are both my toughest critic and biggest advocate. I vow that I will always listen, but likewise will always be honest; Tactful, but honest. I vow that there will be times when I will disagree and challenge you. And I vow that I will also let you be unreasonable when you need to be.
 
-Your contagious demeanor. Anyone who has ever come in contact with you can attest to feeling at least a little bit more cheerful afterwards. While you are realistic, you can find the only ray of sunshine on an otherwise bleak day. I vow to reflect your demeanor when you need it and to amplify it whenever I can. I vow that I will take time to find joy in our little moments as well as milestones. And I vow that I will do all that I can to build a hopeful future with you.
+Your contagious demeanor leaves everyone feeling at least a little bit more cheerful. While you are realistic, you can find the only ray of sunshine on an otherwise bleak day. I vow to reflect your demeanor when you need it and to amplify it whenever I can. I vow that I will take time to find joy in our little moments as well as milestones. And I vow that I will do all that I can to build a hopeful future with you.
 
-Galia. Thank you for everything that you've been to me so far and everything that we will be in the future. Geronimo.
-
-Oh. And one more thing.
-
-I love you.
+Galia. Thank you for everything that you've been to me so far and everything that we will be in the future.
 
 ## VII. RING EXCHANGE
 
