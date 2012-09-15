@@ -1,7 +1,9 @@
 ## I. GATHERING WORDS
 
 Welcome! Good afternoon, family and friends of Bob and Galia.
-(--Gary introduces himself.--)
+
+    Gary introduces himself.
+
 We have come here today to celebrate the wedding
 of Galia Truab and Robert Breznak.
 
@@ -30,8 +32,6 @@ on part of that journey. We celebrate not what will be, but what already is!
 Today represents not only the joining of Bob and Galia,
 but also the joining of their families and friends.
 Bob and Galia would like to recognize their parents on this occasion.
-(-- GP: Should the parents / grandparents be invited to stand? --)
-(-- BB: Since they'll be walking in as apart of the ceremony it will be fine. They'll be asked to stand again during introductions at the reception. --)
 They offer their profound gratitude
 for all the love and care you, their parents, showed in raising them.
 Parents, the unconditional gifts of love and support
@@ -54,9 +54,6 @@ To honor those loved ones who are not with us today
 
 ## IV. MARRIAGE ADDRESS
 
-(-- GP: Do you want me to read this or should it be read by one of the wedding party?? --)
-(-- BB: I think that having someone read it would be nice. We can determine that @ the rehersal. --)
-
 ### Union by Robert Fulghum
 You have known each other from the first glance of acquaintance to this point of commitment. At some point, you decided to marry. From that moment of yes, to this moment of yes, indeed, you have been making commitments in an informal way. All of those conversations that were held in a car, or over a meal, or during long walks – all those conversations that began with, “When we’re married”, and continued with “I will” and “you will” and “we will” – all those late night talks that included “someday” and “somehow” and “maybe” – and all those promises that are unspoken matters of the heart. All these common things, and more, are the real process of a wedding.
 
@@ -66,8 +63,6 @@ Look at one another and remember this moment in time. Before this moment you hav
 
 For after today you shall say to the world –
 This is my husband. This is my wife.
-
-```The section below should be reworded / replaced with whatver GPollice wants to add about marrage.```
 
 Galia and Bob. By now I'm sure that you've received words of wisdom about the wonders, joys, difficulties, 
 ups, downs, rewards, sacrifices, and every other possible topic, that can remotely be applied to marriage. 
@@ -208,18 +203,9 @@ Galia. Thank you for everything that you've been to me so far and everything tha
 
 For thousands of years
 lovers have exchanged rings as a token of their love.
+Like each other, each ring has been made unique by each other's presence. 
 Let these rings be a sign that love has a past, a present, and a future
-through you and within you.
-
-```~ Like each other, each ring has been made unique by each other's presence.```
-
-(-- GP: Comment about the uniqueness of the rings, the fingerprints? --)
-(-- BB: Yep. Not really sure exactly what to say though... --)
-
-Now Bob, please take Galia’s hands, palms up, so you may see the gift that they are to you:
-These are the hands of your best friend, smooth, young, and carefree,
-that are holding yours on your wedding day,
-as she promises to love you all the days of her life.
+through you and within you. 
 
 Bob, take Galia’s ring and place it on her finger and repeat after me:
 
@@ -236,7 +222,7 @@ In this glass are the fruits of Creation, Mankind and Mother Earth. The years of
 
 As with a glass of beer, one of you may find it sweet, the other perhaps bitter or somehow different. Let the drink you share today serve as a reminder that although you may perceive things very differently, being right is never more important than being happy. With this space that you give each other, always putting your commitment to love and honor one another first, your lives together will grow deeper, richer and greatly satisfying, like a hearty beer. You may now drink from this fountain of love. 
 
-`` Couple gives each other a drink from the same glass ``
+    [ Couple gives each other a drink from the same glass ]
 
 ## VII. PRONOUNCEMENT
 Bob and Galia, we have heard your promise to share your lives in marriage.
@@ -247,7 +233,7 @@ In the honesty and sincerity of what you have said and done here today,
 and in accordance with the laws of the state of Massachusetts
 It is my honor and delight to declare you henceforth to be husband and wife 
 
-    [Bob & Galia kiss]
+    [ Bob & Galia kiss ]
 
 ## IX. BENEDICTION
 
