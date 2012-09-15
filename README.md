@@ -155,7 +155,7 @@ Then please turn to each other and share the vows you have written.
 
 ### Galia's Vows
 Bob
-I have know you approximately 27.5% of my life.
+I have know you approximately 27.52% of my life.
 and in that time we have grown from awkward teenagers 
 to slightly less awkward adults 
 as we've begun to build our wonderful lives together.
@@ -167,8 +167,7 @@ I love so many things about you; it will take a lifetime to say them all
 but there is one that is important to say here, today.
 The infinite love and affection that you share with your family and friends is astounding. 
 In turn the love and affection your family has shown me 
-makes me feel so privileged.  
-I am honored to become a part of your family.
+makes me feel so privileged to become a part of your family.
 
 I promise to love you, 
 to encourage and inspire you
@@ -178,7 +177,7 @@ I promise to love you in good times and in bad,
 I promise to accept you being irrational when thats what you need
 I promise to honor you, and to always hold our love for each other in highest regard
 These things I pledge to you today, and always
-as we slowly approaching 100% of our lives together.
+as we slowly approach 100% of our lives together.
 
 I Love You.
 
