@@ -193,7 +193,7 @@ Your curiosity and drive to explore the unknown has enriched our lives. I vow th
 
 Your compassion for others is unlike any other. There are innumerable examples of where you befriended those who others would not. You even managed to put up with me. I vow that I will mirror the love that you show me everyday. I vow that I will always listen and be a confidant for you. And I vow that will support your efforts to make meaningful change.
 
-Your candor challenges and matures my thoughts. In our short time together, I have laid out a new half-baked idea; probably daily. I love that you are both my toughest critic and biggest advocate. I vow that I will always listen, but likewise will always be honest; Tactful, but honest. I vow that there will be times when I will disagree and challenge you. And I vow that I will also let you be unreasonable when you need to be.
+Your candor challenges and matures my thoughts. In our short time together, I have laid out a new half-baked idea; probably daily. I love that you are both my toughest critic and biggest advocate. I vow that I will always listen, but likewise will always be honest. I vow that there will be times when I will disagree and challenge you. And I vow that I will also let you be unreasonable when you need to be.
 
 Your contagious demeanor leaves everyone feeling at least a little bit more cheerful. While you are realistic, you can find the only ray of sunshine on an otherwise bleak day. I vow to reflect your demeanor when you need it and to amplify it whenever I can. I vow that I will take time to find joy in our little moments as well as milestones. And I vow that I will do all that I can to build a hopeful future with you.
 
